@@ -12,5 +12,5 @@
 
 ## 🌍 Let's Connect!
 - 🌐 [Portfolio Website](#)  
-- 💼 [LinkedIn](https://linkedin.com/in/your-profile)  
-- 🐦 [Twitter](https://twitter.com/your-handle)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/piyush-singh-thakur-4ab855231/)  
+  
